@@ -1,0 +1,1 @@
+# assinatura-de-anime-key
